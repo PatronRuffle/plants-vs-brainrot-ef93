@@ -1,4 +1,4 @@
-#  
+#  Experience plants vs brainrots like never before with plants vs brainrots Scripts premium, the #1 Script. Includes instant win and one-hit kill for
 
 
 
